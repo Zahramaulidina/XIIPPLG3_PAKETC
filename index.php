@@ -1,1 +1,1 @@
-jangan terus menyerah tetap lah berusahan
+apapun masalahnya jangan terus menyerah tetap lah berusaha untuk tetap hidup dengan segala masalah yang kita hadapi
