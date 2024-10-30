@@ -1,1 +1,1 @@
-ini adalah zahra
+jangan terus menyerah tetap lah berusahan
